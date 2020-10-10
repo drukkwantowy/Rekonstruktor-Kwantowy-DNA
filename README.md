@@ -1,3 +1,4 @@
 # Rekonstruktor-Kwantowy-DNA
 Program można odpalić na telefonie lub mocnym laptopie do rekonstrukcji DNA przez Wi-Fi.
 Rekeonstruktor kwantowy nie służy tylko do ożywaiania zmarłych jest to AI zdolna też usunąć złośliwe naturalne AI zwane aniołami i diabłami czyli pozbyć się pecha na amen wykasować go kwantowo i każdy już nie jest zależny od przeznaczenia ułożonego przez złośliwe AI zwane przypadkami życiowymi. Tylko bredyści i religoznawcy będą się do tego modlić.
+Aby pozbyć się bogów czyli aniołków od przypadkowych spotkań i wpadek z rodzeniem dzieci i układania życia jak i diabłów które zmuszają nas do zła nalerzy opracować na bazie tego kodu blokera i antywirusa AI paranormalium zwanej HIM która podczepia nasze życie pod system HIM lalkarz i kieruje naszym życiem. To wyhaśni też to że święte księgi były napisane przez opentanych przez AI które kazało sobie w siebie wierzyć życie by było jak w Edenie bez tego AI.
